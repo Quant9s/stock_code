@@ -1,3 +1,1 @@
 # stock_code
-
-ㅗ
